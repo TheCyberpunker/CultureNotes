@@ -1,0 +1,7 @@
+
+**Informe: Delitos informáticos y terrorismo computacional**
+
+Actualmente el crecimiento de delitos informáticos ha aumentado debido a las nuevas culturas cyberpunkers, hacktivistas, y piratas informáticos, hoy en día todos tenemos acceso a la información, a una computadora, tenemos el poder de usar esa información de la manera que se desee, muchos la usan para el bien, como también para el mal, los delitos informáticos ocurren a diario, ocurren incluso mientras se escribe un informe o un trabajo como este, personas viendo que es lo que escribes, o capturando tus teclas, personas que en este momento pueden estar vendiendo la información privada que se encuentra en tu computadora.
+**a que se debe?** Quizás a un pasa tiempo, o es algo que les da dinero. 
+
+La internet no solo es lo que vemos, las tecnologías avanzan, las personas solo usan parte del internet, el otro se encuentra en las profundidades, o un internet descentralizado, difícil de rastrear o de monitorear, lo que los usuarios llaman deepweb, darknet, zeronet, tecnologías que están al alcance de todos, donde se comercia desde acceso a la información de una empresa, partes físicas para hacking, carding y otros delitos informáticos. Hoy en día las tecnologías avanzan, que hasta se puede obtener información de una intranet, mediante el calor y el sonido, por eso las empresas no solo deben fortalecer su estructura y sistemas operativos, sino todo lo que le rodea, incluyendo la confianza y capacitación de su personal.
