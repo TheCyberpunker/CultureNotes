@@ -1,0 +1,6 @@
+
+**Incidencia de los procesos en las empresas** 20/09/2011
+
+Actualmente todas las organizaciones o empresas se encuentran en un contexto globalizado, por lo cual las empresas deben de producir y actuar de manera eficiente para generar competitividad frente a otras empresas a partir de sus fortalezas. De esta manera, se desprende un concepto singularmente importante como lo es la innovación tecnológica de procesos el cual aborda no solo la implementacion de tecnologia dura, si no tambien de tecnología blanda donde abarca su propia seguridad. Los procesos de las organizaciones se pueden considerar actualmente como la base operativa de gran parte de las empresas y gradualmente se van convirtiendo en parte fundamental de muchas otras organizaciones o empresas outsourcing.
+
+Cada organización se encuentra en la necesidad de actualizarse dependiendo de las nuevos procesos o actividades que empiezan a implementar. Las organizaciones que basan todos sus procesos en incidencias funcionales generan altos niveles donde se puede analizar su eficacia en las operaciones abordadas por cada función, hoy en dia cada empresa basa sus procesos para optimizar el empleo de las capacidades humanas, integrarlas en equipos para cada proyecto o una nueva actividad, sus resultados son óptimos y resulta ser siempre lo que se esperaba.
